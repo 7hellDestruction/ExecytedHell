@@ -8,10 +8,6 @@ I can be unresponsive and dry so be aware.I did not play PT that much often beca
 
 (PONYTOWN DESCRIPTION+BOUNDARIES)
 
---I'm ONLY kind towards my friends(even in friend list).I don't add people much, I have trust issues. so please try to talk first before we add to each other.my friend request are off.
+--I afk most of the time,please whisper if needed.If I don't respond within 20 minutes, I don't have interest in interacting. friend req off. 
 
---I afk most of the time,please whisper if needed.If I don't respond within 20 minutes, I don't have interest in interacting. 
-
---if you're madness combat fans, please for the love of god, white hank skins can F themself.i see one, I block. 
-
--- shippers , proistraelians , dogdaycatnap shipper , basic criteria ( pedxs,racists ect), trans-assuming ( if they are/the caharcter not trans,theyre not trans.go fys.) , roleplayers ( heavy on sex rps.) dni what the fuck is wrong with you all actually? 
+-- shippers , proistraelians , dogdaycatnap shipper , basic criteria ( pedxs,racists ect), trans-assuming ( if they/the charcter are not trans,theyre not trans.go fys.) , roleplayers ( heavy on sex rps.) , maid suits (i dont find them fucking funny) dni what the fuck is wrong with you all actually? 
