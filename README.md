@@ -14,4 +14,4 @@ I can be unresponsive and dry so be aware.I did not play PT that much often beca
 
 --if you're madness combat fans, please for the love of god, white hank skins can F themself.i see one, I block. 
 
--i take things seriously,so be aware (again.)
+-- shippers , proistraelians , dogdaycatnap shipper , basic criteria ( pedxs,racists ect), trans-assuming ( if they are/the caharcter not trans,theyre not trans.go fys.) , roleplayers ( heavy on sex rps.) dni what the fuck is wrong with you all actually? 
