@@ -10,4 +10,5 @@ I can be unresponsive and dry so be aware.I did not play PT that much often beca
 
 --I afk most of the time,please whisper if needed.If I don't respond within 20 minutes, I don't have interest in interacting. friend req off. 
 
--- shippers , proistraelians , dogdaycatnap shipper , basic criteria ( pedxs,racists ect), trans-assuming ( if the charcter from any games are not trans,theyre not trans.i only allow if THEY are really trans.) , roleplayers ( heavy on sex rps.) , maid suits (i dont find them fucking funny) dni what the fuck is wrong with you all actually? 
+
+dni stuff ( not necessary but you need to avoid this if you wants to friend w me, )  -- shippers , proistraelians , dogdaycatnap shipper , basic criteria ( pedxs,racists ect), trans-assuming ( if the charcter from any games are not trans,theyre not trans.i only allow if THEY are really trans.) , roleplayers ( heavy on sex rps.) , maid suits (i dont find them fucking funny) dni what the fuck is wrong with you all actually? 
