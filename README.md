@@ -4,6 +4,6 @@
 
 ![](https://64.media.tumblr.com/73f72d70bcfb05095c8cf45aa0f14128/78d827b06c053dd9-94/s1280x1920/8299bde3e09d45673384c6ed918b82173925b85c.pnj)
 
-DNI = 1. PEOLPLE WHO FEMINIZE MADNESS COMABAT ( for example : making Tricky as a women or making him femboy ect,) 
+DNI = 1. PEOPLE WHO FEMINIZE MADNESS COMABAT ( for example : making Tricky as a women or making him femboy ect,) 2. overly emotional people + faking disoders and desease .
 
 ps,  making fun of straight people is fucking unfunny.
